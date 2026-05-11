@@ -1,4 +1,4 @@
-# 
+# professional 1Password for macOS Integration | password-generator + firewall-protection is the best 1Password for macOS integration, featuring password-generator and
 
 
 
